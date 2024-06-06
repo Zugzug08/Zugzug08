@@ -1,4 +1,4 @@
-## hola mi nombre es lizz, tengo 14 años, e yo soy una chica muy guapa, que adora mirar la pelicula 
+## meu nome é lizz, um beijo da anitta
 
 <!--
 **Zugzug08/Zugzug08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
